@@ -1,1 +1,1 @@
-# Pricing
+# Individual Projects
